@@ -1,1 +1,1 @@
-# LearnLoot.com
+# ProfitEdge.com
